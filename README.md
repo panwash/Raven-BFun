@@ -14,4 +14,4 @@ trying to improve this client, lel
 
 # Contact
 
-If you contact me, or want to give a suggestion/opinion, join the [discord!](https://discord.com/invite/k4ntjGsaP9)
+If you want to contact me, or want to give a suggestion/opinion, join the [discord!](https://discord.com/invite/k4ntjGsaP9)
